@@ -90,6 +90,7 @@ It is not harmful madness — it is the fire inside someone that pushes them to 
     </p>
     <br>
     <p8><i style="color: antiquewhite;">Maut (Annihilation/Death):</i> the death of distance, the death of fears, the death of the old you—so that a new version, shaped by love, can rise. The ego dissolves; "me" becomes "we," merging into oneness with the beloved or the divine. </p8><br>
+   <br>
     <p>True love is never end befor death , if the love is end befor deth then it isnot love </p>
 </body>
 
