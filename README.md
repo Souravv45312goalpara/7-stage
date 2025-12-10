@@ -23,7 +23,14 @@
     <br>
     <p3><i style="color: antiquewhite;">Uns (Infatuation/Attachment):</i> <br>
     “Uns” is an Urdu–Arabic word that describes a deep emotional attachment or a feeling of warm closeness with someone or something. It is a positive, comforting emotion.
-    Intense preoccupation, feeling overcome by the person.</p3><br>
+    Intense preoccupation, feeling overcome by the person.</p3><b>
+    ⭐ What “Uns” Means
+    <ul>
+        <li>A natural sense of affection</li>
+        <li>Feeling comfortable and safe with someone</li>
+        <li>A gentle emotional bond</li>
+    <li>A sense of belonging or connection</li>
+    </ul>
     <br>
     <p4><i style="color: antiquewhite;">Ishq (Love):</i> Deep affection and connection develops, moving beyond infatuation.</p4><br>
     <br>
